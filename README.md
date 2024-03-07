@@ -1,3 +1,7 @@
+# zhuzhu114514
+
+![:name](https://count.getloli.com/get/@zhuzhu114514-profile?theme=rule34)
+
 - 👋 Hi, I’m @zhuzhu114514
 - 👀 I’m interested in (well , I don'know)
 - 🌱 I’m currently learning c++
