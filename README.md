@@ -3,9 +3,8 @@
 ![:name](https://count.getloli.com/get/@zhuzhu114514-profile?theme=rule34)
 
 - 👋 Hi, I’m @zhuzhu114514
-- 👀 I’m interested in (well , I don'know)
+- 👀 I’m interested in (well , I don'know i can write which one)
 - 🌱 I’m currently learning c++
-- 💞️ I’m looking to collaborate on (well , I don'know)
 - 📫 Reach me @ 3595064017@qq.com
 - 😄 Pronouns: stupid
 - ⚡ Fun fact: (well , I don'know what to write here)
